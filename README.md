@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Alufactorer
+- 👀 I’m interested in programming small applications for fun and learning new concepts.
+- 🌱 I’m currently a student, so my uploads might be irregular.
+- 📫 How to reach me, my email - adress : alu.minium@outlook.com
